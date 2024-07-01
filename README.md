@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **aggarwaldhruv14115@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1sXKXk5mpxoT3-q2f3tG2YCbfQv9ivkjbskvbksdBd5G/view?usp=sharing](https://drive.google.com/file/d/1i1Nb7BGSqGpsqPKulqUiS_r1dx8fBTX_/view?usp=drivesdk)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1yDQKanxEzjkq_6q3qBmmtQbrU1Dzf9Mb/view?usp=sharing](https://drive.google.com/file/d/1i1Nb7BGSqGpsqPKulqUiS_r1dx8fBTX_/view?usp=drivesdk)
 
 - ⚡ Fun fact **I like Road Trips**
 
