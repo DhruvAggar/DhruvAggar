@@ -4,9 +4,9 @@
 
 - 🔭 I’m currently working on **my skills in Java Full Stack**
 
-- 🌱 I’m currently learning **Full Stack, Data Structure and Algorithm**
+- 🌱 I’m currently learning **Java Full Stack, Data Structure and Algorithm**
 
-- 👯 I’m looking to learn **UI/UX Design**
+- 👯 I’m looking to learn **MERN Stack**
 
 - 📫 How to reach me **aggarwaldhruv14115@gmail.com**
 
